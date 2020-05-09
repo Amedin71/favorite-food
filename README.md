@@ -1,1 +1,2 @@
-My favorite food is: empanadas
+Ashley Medina
+My favorite food is yogurt.
